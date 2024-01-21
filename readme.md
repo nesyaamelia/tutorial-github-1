@@ -1,3 +1,4 @@
 Nama : Nesya Amelia
 Hobi : Menyanyi
-Warna : Hitam
+Warna Favorit : Hitam
+Makanan Favorit : Ramen
